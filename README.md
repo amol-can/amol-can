@@ -20,7 +20,7 @@
 
 # ❤ to Build - Software Engineer & Enthusiast!
 
-Hi, I'm Amol — a **software engineer** love to solve real-life problems using technology. ✌💖
+Hi, I'm Amol — a **software engineer** love to solve real-life problems using technology. Especially interested in building innovative solutions. ✌💖
 
 <!-- section - social media icons -->
 
